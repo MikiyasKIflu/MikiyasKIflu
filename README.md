@@ -8,4 +8,4 @@ I'm especially interested in using data to support development in Ethiopia and b
 
 📍 Based in Ethiopia | 🚀 Always learning | 🤝 Open to collaboration  
 
-🔗 Connect with me on [LinkedIn](https://https://www.linkedin.com/in/mikiyas-kiflu-08494a354)
+🔗 Connect with me on [LinkedIn](https://https://https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3Bu%2BtBIb2eSNas5UmviCk1%2FA%3D%3D)
